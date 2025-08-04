@@ -62,5 +62,5 @@ We may update this Privacy Policy from time to time. If changes are made, we wil
 
 If you have any questions or concerns about this Privacy Policy or the app, feel free to contact us:
 
-**📧 Email:** `your-email@example.com`  
+**📧 Email:** `masfiqunahmednooneknows@gmail.com`  
 **📱 App Name:** Tasklodoon
